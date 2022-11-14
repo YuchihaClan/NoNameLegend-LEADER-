@@ -1,7 +1,7 @@
 # NoNameLegend 
 >
 >NoNameLegend Is Yuchiha Clan Leader
->And Owned Of
+>And Own's 
 >This Account Also.
 
 >Here's Information Of Them:
